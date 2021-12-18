@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @cpmktd56
+- 🌱 I’m currently learning everything and anything, from my job (pharmacy and cheimistry) to what I want to do (js, python)
